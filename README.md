@@ -1,4 +1,15 @@
-### Hi there 👋
+I'm Matt, a Ph.D. student at the University of Florida studying Higher Education Administration with a graduate minor in Urban and Regional Planning! :crocodile:
+
+My research focuses on issues related physical campus environments and colleges towns. In particular looking at issues relating to student housing and trasportation, captial building projects, geography of higher education, and town-gown relations.
+
+Currently forming dissertation ideas around :station: :light_rail: :monorail: :oncoming_bus: :airplane: 's effect on college access
+
+Home is York :gb: live in Gainesville, FL :us:
+
+This week's career goal is to work in institutional research, helping colleges solve problems with data-orientated solutions.
+
+When not working the majority of my time is spent playing :trumpet: :musical_score: as well as occasional :8ball: :golf: :video_game:
+
 
 <!--
 **MattOnCampus/MattOnCampus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
