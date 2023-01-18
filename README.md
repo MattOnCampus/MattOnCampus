@@ -1,4 +1,8 @@
-I'm Matt, a Ph.D. student at the University of Florida studying Higher Education Administration with a graduate minor in Urban and Regional Planning! :crocodile:
+Hello world, I'm Matt!
+
+Explaining my username: ttalVlatt, the lVl make an M, meaning ttalVlatt become ttaMatt, which is Matt spelt backwards then forwards.
+
+I'm a Ph.D. student at the University of Florida studying Higher Education Administration with a graduate minor in Urban and Regional Planning! :crocodile:
 
 My research focuses on issues related physical campus environments and colleges towns. In particular looking at issues relating to student housing and trasportation, captial building projects, geography of higher education, and town-gown relations.
 
